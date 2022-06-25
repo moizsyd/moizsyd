@@ -1,5 +1,5 @@
 - 👋 Hi, I’m syed moiz uddin
-- 👀 I’m interested in in programming and vlsi disigning
+- 👀 I’m interested in in programming and vlsi designing
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 can reach me through my mail id:moizu858@gmail.com or my contact number +91 9652678301
